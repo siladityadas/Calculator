@@ -1,1 +1,1 @@
-This is for testing and maikina
+This is for testing
